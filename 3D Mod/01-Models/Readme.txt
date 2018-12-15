@@ -1,1 +1,1 @@
-Einzelne Modelle für den Film
+Einzelne Modelle fÃ¼r den Film

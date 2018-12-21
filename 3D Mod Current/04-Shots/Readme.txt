@@ -1,0 +1,1 @@
+Die einzelnen Shots der jeweiligen Szene
